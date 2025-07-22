@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Que?:
 Ask me about robotics, i'll prob ignore you
 
 
